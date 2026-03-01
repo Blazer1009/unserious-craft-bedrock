@@ -1,2 +1,2 @@
 # unserious-craft-bedrock
-This is the first time I have made this funny resource packs like this, I hope you enjoy it
+This is the first time I have made a funny resource pack like this, I hope you enjoy it
